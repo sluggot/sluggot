@@ -1,6 +1,7 @@
 im like never gonna make ths look good 👀👀
 
 https://straw.page/sluggot
+
 c+h free whenEVER even ifim with my friends just if they ahve dni... 👀 maybe dontt... 
 im offtab allot ... just whisper me or something 
 
