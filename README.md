@@ -4,7 +4,7 @@ https://sluggot.straw.page/builder
 alts [@HORUSSZAHHAK](https://github.com/horussZahhak) [@RadiantsDay](https://github.com/Radiantsday) [@purplepartys](https://github.com/purplepartys) (remaking them later) (never)  
 ——✩  
 **<ins>__c+h freely, whisper encouraged, mostly offtab__</ins>**  
-Builderman obsessor & Radiant_Day yume  
+Builderman obsessor & Radiant_Day yume (apr. 22, 2022<3)    
 Myth hunter (2018-2020)  
 
 
