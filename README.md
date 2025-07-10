@@ -1,6 +1,6 @@
 
 ——✩  
-https://sluggot.straw.page/builder
+https://sluggot.straw.page/builder ++ https://rentry.co/miki-x09
 
 alts [@HORUSSZAHHAK](https://github.com/horussZahhak) [@RadiantsDay](https://github.com/Radiantsday) [@purplepartys](https://github.com/purplepartys) (remaking them later) (never)  
 ——✩  
