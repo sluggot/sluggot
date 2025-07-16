@@ -1,12 +1,15 @@
+!! BEFORE YOU INTERACT :  
+1 I participate in The Void Cult/Worshipping of Noli, I am a *firm* believer of Noli, and have been for many years(2021); I do not bring him up in any way.   
+2 I am EXTREMELY, unhealthily obsessed with Builderman; I often bring him up in my statuses, and my friends indulge in this. If this makes you uncomfortable, tell me and I wont bring him up
 
 ——✩  
 https://sluggot.straw.page/builder ++ https://rentry.co/miki-x09
 
 alts [@HORUSSZAHHAK](https://github.com/horussZahhak) [@RadiantsDay](https://github.com/Radiantsday) [@purplepartys](https://github.com/purplepartys) (remaking them later) (never)  
 ——✩  
-**<ins>__c+h freely ✧ whisper encouraged ✧ mostly offtab__</ins>**  
+**<ins>__c+h freely ✧ whispering encouraged ✧ mostly offtab__</ins>**  
 Builderman obsessor ✧ Radiant_Day yume (apr. 22, 2022<3)    
-Myth hunter (2018-2021) ✧ I love my kids!
+Myth hunter (2018-2021+) ✧ I love my kids!
 
 
 ![](https://komarev.com/ghpvc/?username=sluggot&style=flat-square&color=632ae8&label=rootbeer+cans)
