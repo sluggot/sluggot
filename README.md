@@ -1,5 +1,7 @@
 !! BEFORE YOU INTERACT :  
-1 I am EXTREMELY, unhealthily obsessed with Builderman; I often bring him up in my statuses, and my friends indulge in this. If this makes you uncomfortable, tell me and I wont bring him up
+1 I am EXTREMELY, unhealthily obsessed with Builderman; I often bring him up in my statuses, and my friends indulge in this. If this makes you uncomfortable, tell me and I wont bring him up  
+
+2 I am VERY uncomfortable around two time kins/irls/etc or anyone that believes in the spawn/spawnism in a unhealthy way. id prefer if they didnt interact
 
 ——✩  
 https://sluggot.straw.page/builder ++ https://rentry.co/miki-x09
