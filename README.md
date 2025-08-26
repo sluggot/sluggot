@@ -3,7 +3,11 @@
 
 2 I am VERY uncomfortable around two time & ***alonetraveler*** kins/irls/etc or anyone that believes in the spawn/spawnism in a unhealthy way. id prefer if they didnt interact 
 
-3 https://x.com/prntzo/status/1950324893951598874
+3 https://x.com/prntzo/status/1950324893951598874  
+
+4 PROSHIP DO NOT INTERACTTTT PILLBOTTLEZ/SOREN AKA https://github.com/teamd4rksh1pWELIKEYOU youve earned my dni  
+
+5 i use a typing quirk (forcefully) on my laptop where i replace E's with X's. my e key dont work LOL
 
 ——✩  
 https://sluggot.straw.page/builder ++ https://rentry.co/miki-x09
