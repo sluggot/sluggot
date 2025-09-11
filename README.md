@@ -23,8 +23,10 @@ Myth hunter (2018-2021+) ✧ I love my kids!
 
 
 
-disc - **buildermansloyalturkey**  
-MSM - 4002943648JC  
+disc - **hammerhacks**  
+MSM - 882R-6S94-BJT5-PL  
+
+
 ——✩  
 current interests are -   
 BRAWLR PLAY BRAWLR. The days union + ARG, pilgrammed, blood debt, creatures of sonaria, Save Robloxia, Robloxia:Corruption, The Robloxia: Until Dawn, Crossovers, High Tower, Ribbon rabbit, Canadian Sim, Night of the Drakobloxxers, Guts & Blackpowder, PWNed BY 14:00, Outlaws of Robloxia, Dumb boss fights, The battle bricks, Work at a Pizza Place, Super bomb survival, Hours, No More Time, Midnight Horrors, Scuba Diving at Quill Lake, Grace, (Old) Roblox myths, (Napolaen, Lummony(<3), D3tectiveBailey(<3), CITS/G0Z, RepulsiveAgony, Iltria, Tanguerine, peamsauce, Pteh, Nimblz(?), Rykwah, BilIium(<3) Horse Life, Dayshift at Freddies, Cookie run kingdom/ovenbreak, Rain World, yume nikki/2kki ++ more.. Chainsaw Man, Soul Eater, Assassination Classroom, Cowboy Bepop, Puella Magi Madoka Magica ++ more. Ace of Hearts, That Handsome Devil, Lemon Demon, Miss Construction, Oingo Boingo...  
